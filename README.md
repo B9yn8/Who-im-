@@ -16,14 +16,13 @@ Greetings, world! I'm Nagatta, an 18-year-old trader hailing from the vibrant la
 - **Collaboration:** Valuing teamwork and fostering a culture of inclusivity.
 - **Purpose:** Driven by a desire to make a positive impact on the world.
 
+### 🌐 Connect with Me:
+- **Discord:** [🎮 @9yn7](https://discord.com/9yn7)
+- **Instagram:** [📸 \_9yn7](https://www.instagram.com/_9yn7)
+- **Telegram:** [✉️ ZP_H3](https://t.me/ZP_H3)
+- **Telegram Channel:** [📣 Premium VIP Signal](https://t.me/premium_vip_signal)
+- **Website:** [🌐 Portfolio](https://large-quickest-tank.glitch.me/)
+
 ### 🚀 Let's Connect:
 Feel free to reach out, and let's embark on a journey of collaboration, shared insights, and meaningful connections!
 
-### 🌐 Connect with Me:
-- **Discord:** [@9yn7](https://discord.com/9yn7)
-- **Instagram:** [\_9yn7](https://www.instagram.com/_9yn7)
-- **Telegram:** [ZP_H3](https://t.me/ZP_H3)
-- **Telegram Channel:** [Premium VIP Signal](https://t.me/premium_vip_signal)
-- **Website:** [Portfolio](https://large-quickest-tank.glitch.me/)
-
-Feel free to reach out, and let's embark on a journey of collaboration, shared insights, and meaningful connections!
