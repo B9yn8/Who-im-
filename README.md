@@ -29,7 +29,7 @@ Feel free to reach out, and let's embark on a journey of collaboration, shared i
 
 
 
-<iframe src="https://giphy.com/embed/peQ4zyL7HTkzvOVxiQ" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/peQ4zyL7HTkzvOVxiQ"></a></p>
+[![GIF](https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExMTRweW1rOHpvMHZ3M3FiMHJmNjVheDh4bjVib2hicXlocGpwZ2RmYSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/peQ4zyL7HTkzvOVxiQ/giphy.gif)](https://giphy.com/embed/peQ4zyL7HTkzvOVxiQ)
 
 
 
