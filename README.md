@@ -22,14 +22,14 @@ Greetings, world! I'm Nagatta, an 18-year-old trader hailing from the vibrant la
 - **Instagram:** [📸 \_9yn7](https://www.instagram.com/_9yn7)
 - **Telegram:** [✉️ ZP_H3](https://t.me/ZP_H3)
 - **Telegram Channel:** [📣 Premium VIP Signal](https://t.me/premium_vip_signal)
-- **Website:** [🌐 Portfolio](https://large-quickest-tank.glitch.me/)
+- **Website:** [🌐 Portfolio](#)
 
 ### 🚀 Let's Connect:
 Feel free to reach out, and let's embark on a journey of collaboration, shared insights, and meaningful connections!
 
 
 
-
+<iframe src="https://giphy.com/embed/peQ4zyL7HTkzvOVxiQ" width="480" height="480" frameBorder="0" class="giphy-embed" allowFullScreen></iframe><p><a href="https://giphy.com/gifs/peQ4zyL7HTkzvOVxiQ"></a></p>
 
 
 
@@ -62,11 +62,11 @@ About Me:
 
 
 
-Telegram: Click Here
+[Telegram](https://t.me/premium_vip_signal)
+[Instagram](https://www.instagram.com/_9yn7)
+[Telegram Channel](https://t.me/ZP_H3)
+[teamarman](https://cutt.us/NAGATTA)
 
-Instagram: Click Here
-
-Telegram Channel: Click Here
 
 
 
