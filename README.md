@@ -1,4 +1,5 @@
 # 👋 Hello there, I'm Nagatta! 🌟
+[![GIF](https://media.giphy.com/media/INphej5G0AsxwCcODd/giphy.gif)](https://giphy.com/gifs/INphej5G0AsxwCcODd)
 
 ### About Me ℹ️
 - 🎓 **Age:** 18
@@ -72,6 +73,7 @@ Telegram Channel: Click Here
 Feel free to reach out to me on Telegram for direct communication, follow me on Instagram for updates
 
 
+[![GIF](https://media.giphy.com/media/INphej5G0AsxwCcODd/giphy.gif)](https://giphy.com/gifs/INphej5G0AsxwCcODd)
 
 
 
